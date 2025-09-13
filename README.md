@@ -29,7 +29,7 @@
 ---
 📫 How to reach me:
 - 📧 Email: **mphathincube8@gmail.com**
-- 🔗 LinkedIn: **[linkedin.com/mphathi](https://www.linkedin.com/in/mphathincube8/)**
+- 🔗 LinkedIn: **[linkedin.com/mphathi](https://www.linkedin.com/in/mphathincube/)**
 - 💬 WhatsApp: **[Click to Chat](https://wa.me/27733581246)**
   
 ---
