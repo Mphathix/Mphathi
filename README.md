@@ -93,7 +93,7 @@
 
 ---
 
-## 🌐 **[Portfolio: coming soon?](mphathix.dev)**
+## 🌐 **[Portfoli](https://mphathix.github.io/Mphathi_Portfolio/)**
 
 ---
 
