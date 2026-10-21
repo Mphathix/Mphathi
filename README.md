@@ -93,7 +93,7 @@
 
 ---
 
-## 🌐 **[Portfoli](https://mphathix.github.io/Mphathi_Portfolio/)**
+## 🌐 [Portfolio](https://mphathix.github.io/Mphathi_Portfolio/)
 
 ---
 
